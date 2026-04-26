@@ -17,12 +17,12 @@ I wish I could run. (Хотелось бы смочь убежать)
 Doubts, suspicions, your playful mask (Сомнения, подозрения, твоя игривая маска)  
 That I will never believe. (Которой я никогда не поверю)  
 Danger, shadows, the silence of night (Опасность, тени, тишина ночи)  
-Will never allow to relieve. (Никогда не дадут)
+Will never allow to relieve. (Никогда не дадут отдохнуть)
 # 2
-Hello, how's your afternoon?  
-Can I do anything for you?  
-Now, all my worries are swoon,  
-That's really something new.
+Hello, how's your afternoon? (Привет, как твой вечер?)  
+Can I do anything for you? (Я могу чем нибудь помочь?)  
+Now, all my worries are swoon, (Теперь все мои волнения смело)  
+That's really something new. 
 
 Everyday you're coming to me  
 Every time so suddenly.  
