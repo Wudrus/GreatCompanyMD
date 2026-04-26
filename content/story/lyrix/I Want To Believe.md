@@ -6,12 +6,12 @@ There's nothing for me that is new. (Для меня ничего не ново)
 
 Everyday coming to me (Каждый день приходя ко мне)  
 Like fulfilling the gluttony (Как будто удовлетворяя свою даже)  
-For all the info 'bout me. (До всей)
-What a lack of sincerity.
+For all the info 'bout me. (До всей информации обо мне)  
+What a lack of sincerity. (Ну что за отсутствие искренности)
 
-Time has stopped,  
-Fire began.  
-In glass I'm trapped,  
+Time has stopped, (Время остановилось)  
+Fire began. (Начался пожар)  
+In glass I'm trapped, ()
 I wish I could run.
 
 Doubts, suspicions, your playful mask  
