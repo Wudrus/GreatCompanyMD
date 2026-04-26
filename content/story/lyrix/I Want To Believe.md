@@ -26,12 +26,12 @@ That's really something new. (Это действительно что-то но
 
 Everyday you're coming to me (Каждый день приходишь ко мне)  
 Every time so suddenly. (Каждый раз так внезапно)  
-You want to know more of me (Хочешь лучше узнать)
-I'm glad to be in your company.
+You want to know more of me (Хочешь лучше узнать)  
+I'm glad to be in your company. (Я рад быть рядом с тобой)
 
-Time will pass,  
-Fire will go out,  
-I need to surpass
+Time will pass, (Время пройдёт)  
+Fire will go out, (Потухнет огонь)  
+I need to surpass (Мне нужно превзойти)
 For I need to get out.
 
 Nor doubts, nor suspicions, nor your absent mask  
