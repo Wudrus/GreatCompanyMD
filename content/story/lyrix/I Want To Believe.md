@@ -31,10 +31,10 @@ I'm glad to be in your company. (Я рад быть рядом с тобой)
 
 Time will pass, (Время пройдёт)  
 Fire will go out, (Потухнет огонь)  
-I need to surpass (Мне нужно превзойти)
-For I need to get out.
+I need to surpass (Мне нужно превзойти)  
+For I need to get out. (Ибо нужно выбраться)  
 
-Nor doubts, nor suspicions, nor your absent mask  
-Won't stop me keeping to believe.  
+Nor doubts, nor suspicions, nor your absent mask (Ни сомнения, ни подозрения, ни твоя отсутствующая маска)  
+Won't stop me keeping to believe. (Не осталась)
 Nor danger, nor shadows, nor the silence of that night  
 Won't stop you helping me to relieve.  
