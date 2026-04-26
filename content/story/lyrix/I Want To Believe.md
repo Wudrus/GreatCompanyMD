@@ -1,6 +1,6 @@
 # 1
-Greetings, good afternoon,  
-How may I help you?  
+Greetings, good afternoon, (Приветствую, добрый вечер)  
+How may I help you? +
 Interesting, your very same tune?  
 There's nothing for me that is new.
 
