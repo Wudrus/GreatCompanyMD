@@ -11,10 +11,10 @@ What a lack of sincerity. (Ну что за отсутствие искренн�
 
 Time has stopped, (Время остановилось)  
 Fire began. (Начался пожар)  
-In glass I'm trapped, ()
-I wish I could run.
+In glass I'm trapped, (Застрял я в стекле)  
+I wish I could run. (Хотелось бы смочь убежать)
 
-Doubts, suspicions, your playful mask  
+Doubts, suspicions, your playful mask (Сомнения, подозрения, твоя игровая)
 That I will never believe.  
 Danger, shadows, the silence of night  
 Will never allow to relieve.
