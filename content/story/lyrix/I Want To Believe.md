@@ -4,9 +4,9 @@ How may I help you? (Чем могу быть полезен?)
 Interesting, your very same tune? (Интересно, всё та же твоя мелодия?)  
 There's nothing for me that is new. (Для меня ничего не ново)
 
-Everyday coming to me  
-Like fulfilling the gluttony  
-For all the info 'bout me.  
+Everyday coming to me (Каждый день приходя ко мне)  
+Like fulfilling the gluttony (Как будто удовлетворяя свою даже)  
+For all the info 'bout me. (До всей)
 What a lack of sincerity.
 
 Time has stopped,  
