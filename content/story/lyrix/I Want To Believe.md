@@ -22,11 +22,11 @@ Will never allow to relieve. (Никогда не дадут отдохнуть)
 Hello, how's your afternoon? (Привет, как твой вечер?)  
 Can I do anything for you? (Я могу чем нибудь помочь?)  
 Now, all my worries are swoon, (Теперь все мои волнения смело)  
-That's really something new. 
+That's really something new. (Это действительно что-то новое)
 
-Everyday you're coming to me  
-Every time so suddenly.  
-You want to know more of me  
+Everyday you're coming to me (Каждый день приходишь ко мне)  
+Every time so suddenly. (Каждый раз так внезапно)  
+You want to know more of me (Хочешь лучше узнать)
 I'm glad to be in your company.
 
 Time will pass,  
