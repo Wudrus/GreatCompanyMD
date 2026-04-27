@@ -35,6 +35,6 @@ I need to surpass (Мне нужно превзойти)
 For I need to get out. (Ибо нужно выбраться)  
 
 Nor doubts, nor suspicions, nor your absent mask (Ни сомнения, ни подозрения, ни твоя отсутствующая маска)  
-Won't stop me keeping to believe. (Не осталась)
-Nor danger, nor shadows, nor the silence of that night  
-Won't stop you helping me to relieve.  
+Won't stop me keeping to believe. (Не остановят меня от веры)  
+Nor danger, nor shadows, nor the silence of that night (Ни опасность, ни тени, ни тишина той ночи)  
+Won't stop you helping me to relieve. (Не остановят тебя от помощи мне отдохнуть)
