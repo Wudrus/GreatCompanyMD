@@ -18,6 +18,8 @@ Doubts, suspicions, your playful mask (Сомнения, подозрения, �
 That I will never believe. (Которой я никогда не поверю)  
 Danger, shadows, the silence of night (Опасность, тени, тишина ночи)  
 Will never allow to relieve. (Никогда не дадут отдохнуть)
+
+
 # 2
 Hello, how's your afternoon? (Привет, как твой вечер?)  
 Can I do anything for you? (Я могу чем нибудь помочь?)  
