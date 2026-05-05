@@ -16,8 +16,8 @@ I wish I could run. (Хотелось бы смочь убежать)
 
 Doubts, suspicions, your playful mask (Сомнения, подозрения, твоя игривая маска)  
 That I will never believe. (Которой я никогда не поверю)  
-Danger, shadows, the silence of night (Опасность, тени, тишина ночи)  
-Will never allow to relieve. (Никогда не дадут отдохнуть)
+Danger, shadows, the silence of night  
+Will never allow to relieve. 
 
 Stop trying  
 To reach the forbidden fruit.  
