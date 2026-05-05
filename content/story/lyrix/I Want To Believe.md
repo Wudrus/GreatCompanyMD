@@ -24,7 +24,8 @@ To reach the forbidden fruit
 You're lying  
 That's a thing coming from root  
 I'm giving  
-
+The signs I'll never welcome  
+Though going
 # 2
 Hello, how's your afternoon? (Привет, как твой вечер?)  
 Can I do anything for you? (Я могу чем нибудь помочь?)  
