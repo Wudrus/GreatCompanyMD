@@ -1,11 +1,11 @@
 # 1
-Greetings, good afternoon, (Приветствую, добрый вечер)  
-How may I help you? (Чем могу быть полезен?)  
-Interesting, your very same tune? (Интересно, всё та же твоя мелодия?)  
-There's nothing for me that is new. (Для меня ничего не ново)
+Greetings, good afternoon,  
+How may I help you?  
+Interesting, your very same tune?  
+There's nothing for me that is new.
 
-Everyday coming to me (Каждый день приходя ко мне)  
-Like fulfilling the gluttony (Как будто удовлетворяя свою даже)  
+Everyday coming to me  
+Like fulfilling the gluttony  
 For all the info 'bout me.  
 What a lack of sincerity.
 
