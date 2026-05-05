@@ -49,9 +49,9 @@ Nor danger, nor shadows, nor the silence of that night
 Won't stop you helping me to relieve.
 
 Stop trying  
-  
+To play cool, like I've got all of this.
 I'm lying  
-  
+When  
 You're giving  
   
 Though going  
