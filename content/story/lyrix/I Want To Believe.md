@@ -47,3 +47,11 @@ Nor doubts, nor suspicions, nor your absent mask
 Won't stop me keeping to believe.  
 Nor danger, nor shadows, nor the silence of that night  
 Won't stop you helping me to relieve.
+
+Stop trying  
+  
+I'm lying  
+  
+You're giving  
+  
+Though going  
