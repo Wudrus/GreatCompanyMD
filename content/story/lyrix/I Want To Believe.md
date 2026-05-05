@@ -20,13 +20,13 @@ Danger, shadows, the silence of night (Опасность, тени, тишин�
 Will never allow to relieve. (Никогда не дадут отдохнуть)
 
 Stop trying  
-To reach the forbidden fruit  
+To reach the forbidden fruit.  
 You're lying  
-That's a thing coming from root  
+That's a thing coming from root.  
 I'm giving  
-The signs I'll never welcome  
+The signs I'll never welcome.  
 Though going  
-To get lead
+To get led by this sick syndrome.
 # 2
 Hello, how's your afternoon? (Привет, как твой вечер?)  
 Can I do anything for you? (Я могу чем нибудь помочь?)  
