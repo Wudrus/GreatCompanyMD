@@ -35,15 +35,15 @@ That's really something new.
 
 Everyday you're coming to me  
 Every time so suddenly.  
-You want to know more of me (Хочешь лучше узнать)  
-I'm glad to be in your company. (Я рад быть рядом с тобой)
+You want to know more of me  
+I'm glad to be in your company.
 
-Time will pass, (Время пройдёт)  
-Fire will go out, (Потухнет огонь)  
-I need to surpass (Мне нужно превзойти)  
-For I need to get out. (Ибо нужно выбраться)  
+Time will pass,  
+Fire will go out,  
+I need to surpass  
+For I need to get out.  
 
-Nor doubts, nor suspicions, nor your absent mask (Ни сомнения, ни подозрения, ни твоя отсутствующая маска)  
-Won't stop me keeping to believe. (Не остановят меня от веры)  
-Nor danger, nor shadows, nor the silence of that night (Ни опасность, ни тени, ни тишина той ночи)  
-Won't stop you helping me to relieve. (Не остановят тебя от помощи мне отдохнуть)
+Nor doubts, nor suspicions, nor your absent mask  
+Won't stop me keeping to believe.  
+Nor danger, nor shadows, nor the silence of that night  
+Won't stop you helping me to relieve.
