@@ -53,5 +53,5 @@ To play cool, like I've got all of this.
 I'm lying  
 When saying, I don't need help, so please. 
 You're giving  
-An opportunity to become more  
+An opportunity to become more careless. 
 Though going  
