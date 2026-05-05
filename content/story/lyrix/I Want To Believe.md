@@ -6,16 +6,16 @@ There's nothing for me that is new. (Для меня ничего не ново)
 
 Everyday coming to me (Каждый день приходя ко мне)  
 Like fulfilling the gluttony (Как будто удовлетворяя свою даже)  
-For all the info 'bout me. (До всей информации обо мне)  
-What a lack of sincerity. (Ну что за отсутствие искренности)
+For all the info 'bout me.  
+What a lack of sincerity.
 
-Time has stopped, (Время остановилось)  
-Fire began. (Начался пожар)  
-In glass I'm trapped, (Застрял я в стекле)  
-I wish I could run. (Хотелось бы смочь убежать)
+Time has stopped,  
+Fire began.  
+In glass I'm trapped,  
+I wish I could run.
 
-Doubts, suspicions, your playful mask (Сомнения, подозрения, твоя игривая маска)  
-That I will never believe. (Которой я никогда не поверю)  
+Doubts, suspicions, your playful mask  
+That I will never believe.  
 Danger, shadows, the silence of night  
 Will never allow to relieve. 
 
