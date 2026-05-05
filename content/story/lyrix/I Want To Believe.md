@@ -21,9 +21,9 @@ Will never allow to relieve. (Никогда не дадут отдохнуть)
 
 Stop trying  
 To reach the forbidden fruit  
-Your lying  
-
-
+You're lying  
+That's a thing coming from root  
+I'm 
 # 2
 Hello, how's your afternoon? (Привет, как твой вечер?)  
 Can I do anything for you? (Я могу чем нибудь помочь?)  
