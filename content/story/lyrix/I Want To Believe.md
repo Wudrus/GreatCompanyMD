@@ -50,10 +50,11 @@ Won't stop you helping me to relieve.
 
 Stop trying  
 To play cool, like I've got all of this.
-I'm lying  
-When saying, I don't need help, so please. 
+I'm lying,  
+When saying I don't need help, so please. 
 You're giving  
 An opportunity to become more careless. 
 Though going  
 To double check everything, so restless.  
-So keep helping me
+
+So keep helping me to believe.
