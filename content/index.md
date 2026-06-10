@@ -111,4 +111,4 @@ title: Great Company Wiki
 </table>
 
 ## Отражения
-[[reflections.base|Файл]]
+![[reflections.base|Файл]]
